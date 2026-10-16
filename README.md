@@ -1,0 +1,1 @@
+# caprafal-hotel-and-resturant-skardu
